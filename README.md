@@ -50,14 +50,6 @@
 
 ###
 
-<img align="right" height="125" src="https://uploadkon.ir/uploads/42d222_24coding-anime.gif"  />
-
-###
-
-<br clear="both">
-
-<img align="right" height="200" src="https://uploadkon.ir/uploads/278f10_25nerd-emoji-spotify.gif"  />
-
 ###
 
 <div align="left">
